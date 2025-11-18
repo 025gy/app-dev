@@ -13,16 +13,16 @@ Jujutsu Kaisen is one of my favorite anime series since 2021 because of its inte
 ## My thoughts about Jujutsu Kaisen
 
 ### **What I Like About It**
-- 🔥 High-quality fight scenes
-- 💖 Inumaki Toge and Okkutsu Yuta being the most fineshyt introverted characters
-- 🧩 Unique and creative curse techniques of each characters
-- 🤝 Strong character relationships  
-- 🎭 A good mix of dark themes and humor  
+- High-quality fight scenes
+- **Inumaki Toge and Okkutsu Yuta** being the most fineshyt introverted characters
+- Unique and creative curse techniques of each characters
+- Strong character relationships  
+- A good mix of dark themes and humor  
 
 ### **My Favorite Characters**
-- Okktsu Yuta, My number 1 bae!
-- Inumaki Toge, Nonverbal
-- Choso Kamo, Favorite not so villain
+- *Okkutsu Yuta*, My number 1 bae!
+- *Inumaki Toge*, Nonverbal
+- *Choso Kamo*, Favorite not so villain character
 
 ---
 
