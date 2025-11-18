@@ -27,5 +27,3 @@ Jujutsu Kaisen is one of my favorite anime series since 2021 because of its inte
 ---
 
 [You can check more information about Jujutsu Kaisen here!](https://jujutsu-kaisen.fandom.com/wiki/Jujutsu_Kaisen_Wiki)
-
-If you want a shorter version, more headings, or a more aesthetic layout, I can fo
